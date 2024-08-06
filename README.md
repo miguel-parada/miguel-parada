@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @miguel-parada
+- 👀 I’m interested in Open Source 
+- 📫 How to reach me ... https://www.linkedin.com/in/paradamiguel/
